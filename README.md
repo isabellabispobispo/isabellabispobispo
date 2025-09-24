@@ -7,10 +7,10 @@ sempre procurando aprender algo novo, focando agora em HTML, CSS e Python. No te
 
 # Habilidades ₍^. .^₎Ⳋ
 
-Tenho facilidade a me adaptar e gosto de trabalhar em equipe. Tenho o ingles intermediario, conseguindo me comunicar em situações comuns, mas busco aprender mais.
+♡⸝⸝ Tenho facilidade a me adaptar e gosto de trabalhar em equipe. Tenho o ingles intermediario, conseguindo me comunicar em situações comuns, mas busco aprender mais.
 
 # Email ₍^. .^₎Ⳋ
 
-Contato para email  [isabellabispobispo@gmaiil.com](mailto:isabellabispobispo@email.com)
+♡⸝⸝ Contato para email  [isabellabispobispo@gmail.com](mailto:isabellabispobispo@email.com)
 
 **Obrigada!(^..^)♡︎**
