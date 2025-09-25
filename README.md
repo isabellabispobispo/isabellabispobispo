@@ -11,6 +11,6 @@ sempre procurando aprender algo novo, focando agora em HTML, CSS e Python. No te
 
 # Email ₍^. .^₎Ⳋ
 
-♡⸝⸝ Contato para email  [isabellabispobispo@gmail.com](mailto:isabellabispobispo@email.com)
+♡⸝⸝ Email para contato [isabellabispobispo@gmail.com](mailto:isabellabispobispo@email.com)
 
 **Obrigada!(^..^)♡︎**
