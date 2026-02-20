@@ -2,7 +2,7 @@
 
 # Sobre mim ₍^. .^₎Ⳋ
 
-♡⸝⸝ Sou estudante da Etec, cursando Analise e Desenvolvimento de Sistemas no primeiro ano, tenho 16 anos e tenho muito interesse por tecnologia, 
+♡⸝⸝ Sou estudante da Etec, cursando Analise e Desenvolvimento de Sistemas no segundo ano, tenho 16 anos e tenho muito interesse por tecnologia, 
 sempre procurando aprender algo novo, focando agora em HTML, CSS e Python. No tempo livre, gosto de jogar videogame e ler livros. 
 
 # Habilidades ₍^. .^₎Ⳋ
